@@ -20,3 +20,8 @@ And so I want to let this end with Kelly’s own words, taken from a will that o
 
 > “To these seven children, I leave my whole-hearted love. These are the finest, most gratifying children a mother ever bore. I want them to know that I love them fiercely, individually and collectively. I wish them joy in this life and spiritual comfort at my passing. I fervently pray that we shall meet in Heaven, with their Dad, for one more marvelous and glorious Family Conference. I bless them and their mates and their children. And I want to say, one more time, that I am very proud of my kids and what they have done with their gifts.”
 <script async src="//genius.codes"></script>
+<style>
+#view-on-github {
+    display:none;
+}
+</style>
