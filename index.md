@@ -1,4 +1,4 @@
-# Remarks on Grandma Kelly, July 29, 2017
+# Memorial Remarks, July 29, 2017
 
 When we talk about those who have passed, we often speak about a role for which they are best known, the character which they demonstrated, and what they have left behind. For Charlotte Agnes Cuba, this proves inadequate. This convention cannot contain my Grandma Kelly.
 
