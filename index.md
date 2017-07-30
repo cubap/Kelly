@@ -1,6 +1,6 @@
 # Memorial Remarks, July 29, 2017
 
-When we talk about those who have passed, we often speak about a role for which they are best known, the character which they demonstrated, and what they have left behind. For Charlotte Agnes Cuba, this proves inadequate. This convention cannot contain my Grandma Kelly.
+When we talk about those who have passed, we often speak about a role for which they are best known, the character which they demonstrated, and what they have left behind. For Charlotte, this proves inadequate. This convention cannot contain my Grandma Kelly.
 
 Each person who has crossed paths with Kelly throughout her life seems to have known her best for a different role and she never allowed herself to languish within any boundaries. Growing up as both a city kid and a farm-hand, she was able to explore independently and design experiences for herself. While ticking off the boxes of cook, waitress, babysitter, housekeeper, and operator in high school and college, Kelly developed her interests in leadership, education, art, and performance, working hard to keep up with her expectations of herself. 
 
